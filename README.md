@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @C8Gemdust
 - 👀 I’m interested in Splatoon 3
 - 🌱 I’m currently learning how to use the Splatana Stamper in Splatoon 3
-- 💞️ I’m looking to collaborate on the big website by @modernmummy
+- 💞️ I’m looking to collaborate on the big website by @modernmummy and @chompypotato
 
 
 <!---
