@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning how to use the Splatana Stamper and the Splat roller in Splatoon 3
 - 💞️ I’m looking to collaborate with @DJxclaw and @chompypotato
 - Team Present
-- It feels like @chompypotato forgot about me and @modernmummy :(
+
 - Mostly just working on my maze game at this point, until @Djxclaw and @chompypotato are willing to let me help with their game.
   
 
