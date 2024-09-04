@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate with @DJxclaw and @chompypotato
 - Team Present
 
-- Mostly just working on my maze game at this point, until @Djxclaw and @chompypotato are willing to let me help with their game.
+- Mostly just working on pixel planes until @Djxclaw and @chompypotato are willing to let me help with their game.
   
 
 
